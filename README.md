@@ -4,6 +4,11 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 
+https://www.shahrukhdeveloper.com
+
+LinkedIn
+https://www.linkedin.com/in/shahrukh-freelancer-developer/
+
 
 
 <!---
